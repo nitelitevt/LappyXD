@@ -1,4 +1,4 @@
-## Hi, im Lappy!
+## :wave:Hi, im Lappy!
 
 I like anime and manga.
 
