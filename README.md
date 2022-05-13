@@ -4,7 +4,7 @@ I like anime and manga.
 
 I like rhythm games.
 
-I Enjoy Touhou!
+I Like Vtubers!
 
 My Website is at:
 https://lappy.club
