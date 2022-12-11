@@ -6,5 +6,4 @@ I like rhythm games.
 
 I Like Vtubers!
 
-My Website is at:
-https://lappy.club
+I mostly do graphic design for various projects!
