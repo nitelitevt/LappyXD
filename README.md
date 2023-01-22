@@ -1,4 +1,4 @@
-## :wave:Hi, im Brayden F!
+## :wave:Hi, im nite!
 
 I like anime and manga.
 
